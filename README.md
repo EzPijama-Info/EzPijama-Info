@@ -2,7 +2,7 @@ I'm EzPijama Student of University of Limoges
 - I'm interested in crypto Solana 🚀
 - I'm currently learning blockchain and AI
 - I want to collaborate with @mistral.ai
-- I'm csgo player https://csstats.gg/fr/player/76561199151103893
+- I'm csgo player https://leetify.com/app/profile/76561199151103893
 
 Language 📖
 
